@@ -9,7 +9,7 @@ Below are some frequently asked questions. If you have further questions, drop u
 FAQ section for Ninjas!
 
 #### How does it work?
-> We run two groups (beginner and advanced).
+> We run 2 groups (beginner and advanced).
 > Newcomers initially join the beginner group and later move to the advanced.
 > A parent/guardian of children under the age of 12 has to remain on the premises throughout the session.
 
