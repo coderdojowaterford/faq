@@ -11,7 +11,7 @@ FAQ section for Ninjas!
 #### How does it work?
 > We run 2 groups (beginner and advanced).
 > Newcomers initially join the beginner group and later move to the advanced.
-> A parent/guardian of children under the age of 12 has to remain on the premises throughout the session.
+> A parent/guardian of children under the age of 13 has to remain on the premises throughout the session.
 
 #### How do I join?
 > Come to any of our sessions.
